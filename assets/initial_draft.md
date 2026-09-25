@@ -1,0 +1,357 @@
+# And Then There Was You
+
+It started with a very unromantic thought:
+
+*I’m getting old.*
+
+I was 28. Friends around me were getting married, and somewhere in the back of my mind, I had started wondering if maybe it was time for me too.
+
+But I never liked the idea of deciding something this important after meeting someone a few times. I wanted time to understand a person—how she thinks, how she lives, what makes her happy, how she handles difficult days.
+
+I didn't want someone perfect.
+
+I wanted a partner.
+
+So, I installed Bumble. Strange choice.
+
+Not exactly where I expected to find my future wife.
+
+I barely used it. A few swipes once or twice a week, close the app, move on with life.
+
+And then I saw Sakshi.
+
+Beautiful. Travel pictures. Beaches. A smile that immediately caught my attention.
+
+Still, I told myself:
+
+*Don't get your hopes up.*
+
+Then we started talking.
+
+Same hometown. Both had done our master's. Both loved travelling. And then came perhaps the most important compatibility test of all:
+
+**FRIENDS trivia.**
+
+I started throwing random questions at her, and she answered them ridiculously fast.
+
+*Okay… maybe there is something here.*
+
+I asked for her Instagram.
+
+She said she didn't use it.
+
+Naturally, I assumed she was politely trying to get rid of me.
+
+Then she gave me her Snapchat.
+
+And after that, somehow, we just… never stopped talking.
+
+Chats became calls. Our first call lasted almost three hours, and even then I didn't want to hang up.
+
+Within days, we were talking about our childhoods, families, pasts, dreams and the lives we wanted someday.
+
+Everything felt strangely easy.
+
+Which terrified me.
+
+So I tried playing it cool.
+
+I was very bad at playing it cool.
+
+A few days later, I asked Sakshi to come to Bangalore.
+
+She said yes.
+
+Suddenly, this girl who had existed only inside my phone was actually getting on a flight to meet me.
+
+I planned pottery, kayaking, wine tasting, an early-morning ride—and, because apparently subtlety had completely left my body, a candlelight evening at home.
+
+Candles. Music. A galaxy projector.
+
+It looked beautiful.
+
+It also looked suspiciously like I was about to propose to someone I had never met.
+
+But all I could think was:
+
+*I just want to make her happy.*
+
+---
+
+Her flight was supposed to land at 9:20 PM.
+
+I was at the airport with her favourite white lilies, checking my phone every few seconds.
+
+9:30.
+
+9:45.
+
+10:00.
+
+One tick.
+
+My brain immediately betrayed me.
+
+*What if she never boarded the flight?*
+
+*What if this was all fake?*
+
+*Why are you standing at an airport holding flowers like an idiot?*
+
+At 10:30, she finally called.
+
+The flight had been delayed.
+
+I don't think I've ever been happier about a delayed flight.
+
+And then I saw her.
+
+Sakshi.
+
+White salwar suit. Brown eyes. That smile.
+
+There are moments you remember as photographs, and then there are moments you remember as feelings.
+
+That was a feeling.
+
+For a few seconds, everything around her disappeared.
+
+We looked at each other, and the closer she came, the bigger my smile became.
+
+We hugged.
+
+I gave her the flowers.
+
+And suddenly this person I had spent hours talking to was standing right in front of me.
+
+Real.
+
+And even more beautiful than I had imagined.
+
+The cab ride home was slightly less cinematic because my motion sickness decided it also deserved a role in our love story.
+
+Half my brain was thinking about how beautiful she looked.
+
+The other half:
+
+*Please don't puke. Please don't puke.*
+
+Romance.
+
+Later, I showed her the candle setup.
+
+She was excited first but then went completely silent.
+
+Now, Sakshi can talk.
+
+A lot.
+
+And I love that about her.
+
+So silence was alarming.
+
+Eventually, I realised she thought I was going to propose—like Monica in FRIENDS.
+
+On our first meeting.
+
+After some explanations, reassurance, and me convincing her that I had not completely lost my mind, she relaxed.
+
+Thankfully, she stayed.
+
+---
+
+Those five days disappeared.
+
+Pottery. Wine tasting and a very entertaining drunk Sakshi. A foggy morning bike ride with her arms wrapped around me. Kayaking despite her fear of water. Movies. Dinners. Long conversations.
+
+But strangely, those aren't even the memories I love the most.
+
+It's eating together.
+
+Walking somewhere while holding her hand.
+
+Her head resting on my shoulder.
+
+Going out in pajamas without caring how we looked.
+
+Waking up and knowing she was there.
+
+For a few days, life with her felt strangely normal.
+
+Almost like we had been doing it for years.
+
+And somewhere inside those ordinary moments, I fell completely in love with her.
+
+When I finally told her, she became this ridiculously happy, jumpy version of herself smiling, hugging me, kissing me.
+
+We danced.
+
+And I realised all those warnings I had been giving myself—
+
+*Don't get attached.*
+
+*Don't move too fast.*
+
+*Don't expect too much.*
+
+had clearly failed.
+
+---
+
+Five days later, I was sitting beside her in another cab.
+
+Same girl.
+
+Completely different feeling.
+
+This time, we were going to the airport.
+
+She kept saying, *“I don't want to go.”*
+
+I didn't want her to go either.
+
+As we drove, those five days kept replaying in my head.
+
+Her arms around me on the bike.
+
+Her drunk conversations.
+
+The random kisses.
+
+Her laughing.
+
+Her voice filling my apartment.
+
+Falling asleep knowing she was there.
+
+Waking up and seeing her.
+
+And suddenly I realised what I was actually going to miss.
+
+Not the dates.
+
+Not the candlelight dinner.
+
+Not even the places we went.
+
+I was going to miss **normal life with her**.
+
+I was going to open the same door, walk into the same room and sleep in the same bed.
+
+Everything would be exactly where it had always been.
+
+But it wouldn't feel the same.
+
+There would be no one sitting across from me while I ate.
+
+No head finding its way onto my shoulder.
+
+No hand automatically reaching for mine while we walked.
+
+No sleepy face to look at in the morning.
+
+No Sakshi talking endlessly while I pretended I wasn't completely enjoying listening to her.
+
+I knew I would probably wake up the next morning and, for one tiny second, look for her.
+
+And then remember.
+
+One plate instead of two.
+
+One side of the bed empty.
+
+Silence where her voice had been for five days.
+
+I had always thought silence was peaceful.
+
+For the first time, I knew it wouldn't be.
+
+Sitting beside her, I just wanted time to slow down.
+
+One more evening.
+
+One more dinner.
+
+One more morning.
+
+Anything.
+
+Just not the airport yet.
+
+But the road kept getting shorter.
+
+At the airport, I couldn't tell her everything going through my head because I knew I would cry.
+
+That these had been some of the happiest days I could remember.
+
+That I already missed her while she was still standing in front of me.
+
+That some childish part of me wanted to hold her hand and simply say:
+
+*Don't go.*
+
+And underneath all of it was fear.
+
+*What if distance changes us?*
+
+*What if something this beautiful doesn't work out?*
+
+Because that's the frightening thing about falling deeply in love.
+
+Suddenly, you have something to lose.
+
+Five days earlier, I had stood at that airport terrified that Sakshi might never walk through those gates.
+
+Now I was terrified because she was walking away from me.
+
+I hugged her.
+
+Said goodbye.
+
+And watched her leave.
+
+I sat there for a while afterwards, trying to accept that I was going back alone.
+
+But beneath all the sadness was something stronger.
+
+Hope.
+
+Because nothing between us had felt forced.
+
+I didn't have to pretend to be cooler, stronger or more interesting.
+
+Neither did she.
+
+We were simply ourselves.
+
+And somehow, ourselves worked.
+
+---
+
+### This is for you, Saku.
+
+I never expected the woman of my dreams to walk into my life when I was least expecting it.
+
+And then you came.
+
+Suddenly, love songs make sense. Missing someone so much that it hurts makes sense. Daydreaming about one person during an ordinary day makes sense. Even doing ridiculous little things just to see someone smile makes sense.
+
+Because now I know what it feels like to love someone this much.
+
+Saku, I want to make you happy—not just with trips, surprises or beautiful dates, but in all the ordinary days in between.
+
+I want to be there when you're happy, scared, tired or having one of those days where nothing feels right.
+
+I want to watch you grow, achieve everything you dream of, travel the world with you, make our families happy, build a home together and someday look back at all of this and smile.
+
+You made my life beautiful in a way I didn't even know it could be.
+
+And somehow, in such a short time, you stopped feeling like someone I had just met and started feeling like someone who had always been missing from my life.
+
+I don't know exactly what every day ahead of us will look like.
+
+I just know that I want those days with you.
+
+I love you, Sakshi.
+
+So, so much.
