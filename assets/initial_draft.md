@@ -70,7 +70,7 @@ Candles. Music. A galaxy projector.
 
 It looked beautiful.
 
-It also looked suspiciously like I was about to propose to someone I had never met.
+It also looked I over did it.
 
 But all I could think was:
 
