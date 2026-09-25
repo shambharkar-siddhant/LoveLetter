@@ -328,7 +328,7 @@ And somehow, ourselves worked.
 
 ---
 
-### This is for you, Saku.
+This is for you, Saku.
 
 I never expected the woman of my dreams to walk into my life when I was least expecting it.
 
@@ -352,6 +352,6 @@ I don't know exactly what every day ahead of us will look like.
 
 I just know that I want those days with you.
 
-I love you, Sakshi.
+I love you, Saku.
 
 So, so much.

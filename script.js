@@ -77,12 +77,13 @@ function renderStory(markdown) {
 
 function renderLetter(markdown) {
   const blocks = markdown.split(/\n\s*\n/).filter(Boolean);
-  blocks.forEach((block) => {
-    const element = block.startsWith("### ") ? document.createElement("h2") : document.createElement("p");
+  blocks.forEach((block, index) => {
+    const isHeading = index === 0 || block.startsWith("### ");
+    const element = document.createElement(isHeading ? "h2" : "p");
     const content = block.replace(/^### /, "").replace(/\n/g, " ");
     element.innerHTML = inlineMarkdown(content);
     letterTarget.append(element);
-    if (element.tagName === "H2") letterTarget.append(makeMemory(closingMemory, false).fragment);
+    if (index === 0) letterTarget.append(makeMemory(closingMemory, false).fragment);
   });
 }
 
@@ -98,19 +99,12 @@ function observeReveals() {
   document.querySelectorAll(".reveal").forEach((element) => observer.observe(element));
 }
 
-const embeddedDraft = document.querySelector("#draft-source")?.textContent.trim();
-
-if (window.location.protocol === "file:" && embeddedDraft) {
-  parseDraft(embeddedDraft);
-} else {
-  fetch("assets/initial_draft.md")
-    .then((response) => {
-      if (!response.ok) throw new Error("The letter could not be loaded.");
-      return response.text();
-    })
-    .then(parseDraft)
-    .catch(() => {
-      if (embeddedDraft) parseDraft(embeddedDraft);
-      else storyTarget.innerHTML = '<p class="error">The letter could not be loaded.</p>';
-    });
-}
+fetch("assets/initial_draft.md")
+  .then((response) => {
+    if (!response.ok) throw new Error("The letter could not be loaded.");
+    return response.text();
+  })
+  .then(parseDraft)
+  .catch(() => {
+    storyTarget.innerHTML = '<p class="error">The letter could not be loaded. Please open this site through a web server.</p>';
+  });
