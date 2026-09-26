@@ -58,7 +58,7 @@ So I tried playing it cool.
 
 I was very bad at playing it cool.
 
-A few days later, I asked Sakshi to come to Bangalore.
+A few days later, I asked Saku to come to Bangalore.
 
 She said yes.
 
@@ -75,6 +75,7 @@ It also looked I over did it.
 But all I could think was:
 
 *I just want to make her happy.*
+*I want her to know how special she is to me.*
 
 ---
 
@@ -106,7 +107,7 @@ I don't think I've ever been happier about a delayed flight.
 
 And then I saw her.
 
-Sakshi.
+Saku.
 
 White salwar suit. Brown eyes. That smile.
 
@@ -134,7 +135,8 @@ Half my brain was thinking about how beautiful she looked.
 
 The other half:
 
-*Please don't puke. Please don't puke.*
+*Please don't puke.*
+*Please don't puke.*
 
 Romance.
 
@@ -142,7 +144,7 @@ Later, I showed her the candle setup.
 
 She was excited first but then went completely silent.
 
-Now, Sakshi can talk.
+Now, Saku can talk.
 
 A lot.
 
@@ -162,7 +164,7 @@ Thankfully, she stayed.
 
 Those five days disappeared.
 
-Pottery. Wine tasting and a very entertaining drunk Sakshi. A foggy morning bike ride with her arms wrapped around me. Kayaking despite her fear of water. Movies. Dinners. Long conversations.
+Pottery. Wine tasting and a very entertaining drunk Saku. A foggy morning bike ride with her arms wrapped around me. Kayaking despite her fear of water. Movies. Dinners. Long conversations.
 
 But strangely, those aren't even the memories I love the most.
 
@@ -250,7 +252,7 @@ No hand automatically reaching for mine while we walked.
 
 No sleepy face to look at in the morning.
 
-No Sakshi talking endlessly while I pretended I wasn't completely enjoying listening to her.
+No Saku talking endlessly while I pretended I wasn't completely enjoying listening to her.
 
 I knew I would probably wake up the next morning and, for one tiny second, look for her.
 
@@ -288,11 +290,13 @@ That I already missed her while she was still standing in front of me.
 
 That some childish part of me wanted to hold her hand and simply say:
 
-*Don't go.*
+*Don't go. Please, don't go*
 
 And underneath all of it was fear.
 
 *What if distance changes us?*
+
+*What if she fell out of love?*
 
 *What if something this beautiful doesn't work out?*
 
@@ -300,7 +304,7 @@ Because that's the frightening thing about falling deeply in love.
 
 Suddenly, you have something to lose.
 
-Five days earlier, I had stood at that airport terrified that Sakshi might never walk through those gates.
+Five days earlier, I had stood at that airport terrified that Saku might never walk through those gates.
 
 Now I was terrified because she was walking away from me.
 
